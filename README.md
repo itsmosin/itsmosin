@@ -1,8 +1,8 @@
-### Yo, yo, yo! Mosin in da house, cluelessly stumbling upon this place. NIT Nagpur is my legit hideout, where I pretend to be all studious and junk.
+### 👀 Yo, yo, yo! Mosin in da house, cluelessly stumbling upon this place. NIT Nagpur is my legit hideout, where I pretend to be all studious and junk.
 
-So, check it, I'm hustlin' on my lil' venture, desperately seekin' some tech wizards who won't make me question my life choices. Let's team up and see if we can whip up somethin' epic or just entertain ourselves with glorious failures. Ain't that the spice of life? 🚀🤷‍♂️
+### 🚀 So, check it, I'm hustlin' on my lil' venture, desperately seekin' some tech wizards who won't make me question my life choices. Let's team up and see if we can whip up somethin' epic or just entertain ourselves with glorious failures. Ain't that the spice of life? 🤷‍♂️
 
-Just a friendly reminder, I may be swimmin' in an ocean of confusion most of the time, but hey, that's what makes this journey so darn interestin'. Embrace the chaos, ride the rollercoaster, and let's dive headfirst into this wacky world of tech. Buckle up, peeps, 'cause it's gonna be a wild ride! 🤪
+### 🌪️ Just a friendly reminder, I may be swimmin' in an ocean of confusion most of the time, but hey, that's what makes this journey so darn interestin'. Embrace the chaos, ride the rollercoaster, and let's dive headfirst into this wacky world of tech. Buckle up, peeps, 'cause it's gonna be a wild ride! 
 
 <!--
 **itsmosin/itsmosin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
